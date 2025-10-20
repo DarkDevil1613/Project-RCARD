@@ -102,7 +102,7 @@ You are free to use, modify, and distribute it with proper credit.
   [GitHub – DarkDevil1613](https://github.com/DarkDevil1613)
 
 - 👨‍💻 **Akhil (asenaislive)**  
-  [LinkedIn – Akhil Mycherla](https://www.linkedin.com/in/akhil-mycherla-1757b3365?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))  
+  [LinkedIn – Akhil Mycherla](https://www.linkedin.com/in/akhil-mycherla-1757b3365?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
   [GitHub – asenaislive](https://github.com/asenaislive)
 
 ---
